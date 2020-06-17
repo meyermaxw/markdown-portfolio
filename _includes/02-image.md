@@ -1,1 +1,1 @@
-![Image of Lennithon](https://www.google.com/url?sa=i&url=https%3A%2F%2F5e.writh.net%2Fwiki%2FLennithon&psig=AOvVaw34a3WtVoO7b9atWCQOWrF0&ust=1592517872595000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOihlcjtieoCFQAAAAAdAAAAABAD)
+![Image of Lennithon](https://5e.writh.net/w/images/1/12/Lennithon_dragon.jpg)
