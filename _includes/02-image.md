@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Lennithon](https://www.google.com/url?sa=i&url=https%3A%2F%2F5e.writh.net%2Fwiki%2FLennithon&psig=AOvVaw34a3WtVoO7b9atWCQOWrF0&ust=1592517872595000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOihlcjtieoCFQAAAAAdAAAAABAD)
